@@ -10,4 +10,4 @@ His online course can be found on youtube , you may need to refer to:
 We also spend sometime on discussion of this Structure Mapping trading technology.
 
 Most important, we will keep notes for key concepts and very critical details on understanding and 
-paractical expierence for better effect.
+paractical expierence to make better decisions on your trading adventure.
